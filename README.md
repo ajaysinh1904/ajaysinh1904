@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **ajaydodiya375@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1VuYekiL1yUlgSu3NpJRr5kumWvT3eESG/view?usp=drivesdk](https://drive.google.com/file/d/1VuYekiL1yUlgSu3NpJRr5kumWvT3eESG/view?usp=drivesdk)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1VuYekiL1yUlgSu3NpJRr5kumWvT3eESG/view?usp=drivesdk](https://drive.google.com/file/d/1f_VHhxZigA2-isd34m30PrQOIY3ct37W/view?usp=drivesdk)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
